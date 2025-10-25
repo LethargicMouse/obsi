@@ -1,0 +1,4 @@
+## meanings
+- container
+- wielder
+- box

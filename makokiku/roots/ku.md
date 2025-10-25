@@ -1,0 +1,4 @@
+## meanings
+- good
+- simple
+- comfort

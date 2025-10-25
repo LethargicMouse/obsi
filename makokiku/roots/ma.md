@@ -1,0 +1,4 @@
+## meanings
+- idea
+- concept
+- thought
