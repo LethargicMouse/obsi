@@ -1,4 +1,4 @@
 ## meanings
 - as [[mako]] + [[ki]] + [[ku]]:
-	- good speech
+	- speak good
 	- good language

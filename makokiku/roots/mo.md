@@ -1,0 +1,3 @@
+## meanings:
+- I
+- self

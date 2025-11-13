@@ -1,0 +1,3 @@
+## meanings:
+- feel
+- intuition
