@@ -1,6 +1,6 @@
 
-· Щекотать - dozahekuto
-Смешить - dozaheku
+· Щекотать - zahekukito
+Смешить - zahekuki
 Смех - zaheku
 · Шевелиться - vipi
 · Трогать - remato
@@ -16,7 +16,7 @@
 · Сгущать - soki
 · Чувствовать - he
 · Нарушать/создавать что-то выбивающиеся - dotabepi
-· Стучать - dozaropito
+· Стучать - zaropitodo
 
 оканчиваются на -r
 
